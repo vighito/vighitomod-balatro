@@ -19,4 +19,3 @@ images of hatsune miku and kasane teto - wrenndering
 image of elia furgone + isipisimiaomiao - dark
 
 image of temperini - temperini
- palle
