@@ -8,7 +8,7 @@ credits:
 
 all of the code of the mod + most of the images - vighito
 
-various ideas + image of tosti + play tester - gabrykingo08
+various ideas + image of tosti + play tester - gabamadio
 
 image of elyas - tuamadre
 
