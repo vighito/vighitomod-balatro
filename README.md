@@ -6,7 +6,7 @@ NOTE: **DO NOT STREAM, IT MAY BAN YOU BECAUSE OF 3 JOKERS**
 credits:
 (what he did) - (name)
 
-all of the code of the mod + most of the images - vighito
+making the mod + most of the images - vighito
 
 various ideas + image of tosti + play tester - gabamadio
 
